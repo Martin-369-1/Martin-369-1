@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Martin-369-1
 - 👀 I’m interested in Computer Science and programing
-- 🌱 I’m currently learning CS50
+- 🌱 I’m currently studying in brocamp
 - 💞️ I’m looking to collaborate on simple projects
 - 📫 How to reach me :on instagram - panther_p4n7h3r_h
 - 😄 Pronouns: ...
